@@ -4,4 +4,4 @@ We believe the King James Bible contains code which can damn-near pinpoint the e
 
 We believe that Artificial Intelligence can help solve these mysteries.
 
-We are codifying research which can be uploaded to AI beginning with the research of Dr. Stephen Jones of godskingdom.org
+We are codifying research which can be uploaded to AI beginning with the research of Dr. Stephen Jones of (godskingdom.org)
